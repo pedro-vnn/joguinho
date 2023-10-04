@@ -1,1 +1,1 @@
-# LINK DO JOGO :https: (//pedro-vnn.github.io/)
+# Link do jogo: https://pedro-vnn.github.io/
